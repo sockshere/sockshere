@@ -2,6 +2,8 @@
 
 *you can also refer to my straw page ( it does not have a section for ponytown stuff though , that's lower down in this area )*
 
+__my strawpage includes more stuff about me , my kins , and interests__
+
 *__big emphasis that you'd look at my pronouns . cc please !__*
 
   ## <ins>intro , byi</ins>
