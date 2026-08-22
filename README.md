@@ -10,6 +10,8 @@ __my strawpage includes more stuff about me , my kins , and interests__
 ### intro
 ★ my preferred name varies along with pronouns. but you can default to Sock , it/its for me if you are ever unsure what to call me by. 
 
+★ i do have pronouns i'm more comfortable with depending on which kin of mine i feel closest to at a set time
+
 ★ i am professionally diagnosed with adhd-i , depression , ptsd and anxiety. i suspect i may have autism but am not in a place to get a official statement on that.
 
 ★ i am taken , often refer to my relationship as a marriage (quuerplatonic aroace) - so please for the sake of my sanity don't make flirty remarks towards me 
