@@ -5,6 +5,10 @@
 __my strawpage includes more stuff about me , my kins , and interests__
 
 *__big emphasis that you'd look at my pronouns . cc please !__*
+#### __ᨳଓ . Neopronouns__
+⚚ fae/faen/faer/fears/faenself
+
+⚚ wing/wings/wings/wings'/wingself
 
   ## <ins>intro , byi</ins>
 ### intro
