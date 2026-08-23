@@ -16,7 +16,7 @@ __my strawpage includes more stuff about me , my kins , and interests__
 
 ★ i am taken , often refer to my relationship as a marriage (quuerplatonic aroace) - so please for the sake of my sanity don't make flirty remarks towards me 
 
-★ i am a senior in highschool , nearly 18 years old so please if you're 13 or younger seriously dont interact crazy much with me its awkward and uncomfortable for me. 
+★ i am a senior in highschool , nearly 18 years old so please if you're 13 or younger its sorta awkward and uncomfortable for me. 
 <p align="center"> ──────────────────────────────── <p>
   
  ### byi
