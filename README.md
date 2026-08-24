@@ -18,7 +18,7 @@ __my strawpage includes more stuff about me , my kins , and interests__
 
 ★ i am professionally diagnosed with adhd-i , depression , ptsd and anxiety. i suspect i may have autism but am not in a place to get a official statement on that.
 
-★ i am taken , often refer to my relationship as a marriage (quuerplatonic aroace) - so please for the sake of my sanity don't make flirty remarks towards me 
+★ i am taken , very much so happily  - so please for the sake of my sanity don't make flirty remarks towards me 
 
 ★ i am a senior in highschool , nearly 18 years old so please if you're 13 or younger interact with caution please.
 <p align="center"> ──────────────────────────────── <p>
