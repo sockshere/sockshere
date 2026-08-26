@@ -5,6 +5,9 @@
 __my strawpage includes more stuff about me , my kins , and interests__
 
 *__big emphasis that you'd look at my pronouns . cc please !__*
+
+*This profile will experience shifts of pronouns, pfp & image depending on which kin of mine I'm feeling the closest to at a set time.*
+
 #### _Neopronouns𓂃🖌️
 ➤ thing/thing/things/things/thingself
 
