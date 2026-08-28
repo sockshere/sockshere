@@ -27,9 +27,7 @@ __my strawpage includes more stuff about me , my kins , and interests__
 <p align="center"> ──────────────────────────────── <p>
   
  ### byi
-  
-★ i have multiple kins (nightmare , verity , ink , hermes (epic) , idia shroud) so if you also kin one of those characters and don't like doubles feel free to hide me ! i'd hate to make you uncomfortable / srs. 
-
+ 
 ★ i struggle with the tones in my messages ( with struggles with my own emotions it makes it hard for me to tell how a message comes across) and i struggle using tonetags ( i do not have them memorized and have to constantly check what they mean). 
 
 ★ i  have bad memory and often forget people completely if i don't remember to take notes ( a reason i'm one to friend rather quickly is to make use of the note feature).
