@@ -8,10 +8,8 @@ __my strawpage includes more stuff about me , my kins , and interests__
 
 *This profile will experience shifts of pronouns, pfp & image.*
 
-#### _Neopronouns𓂃🖌️
-➤ thing/thing/things/things/thingself
-
-➤ null/nulls/nulls/nulls/nullself
+#### _Neopronouns
+➤ Just refer to my pronouns.cc !!
 
   ## <ins>intro , byi</ins>
 ### intro
