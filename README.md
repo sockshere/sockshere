@@ -36,8 +36,6 @@ __my strawpage includes more stuff about me , my kins , and interests__
 
 <p align="center"> ──────────────────────────────── <p>
 
-<p align="center"> <img width="99" height="56" alt="ezgif com-crop (2)" src="https://github.com/user-attachments/assets/15464956-3b56-4145-8048-563779a67f52" /> <img width="99" height="56" alt="ezgif com-crop (1)" src="https://github.com/user-attachments/assets/204ea515-2eba-4b2a-b424-232c16b37337" /> <img width="99" height="56" alt="ezgif com-crop (8)" src="https://github.com/user-attachments/assets/4dd256c1-4060-40e3-9f44-2fe8cab25f31" /> <img width="99" height="56" alt="ezgif com-crop (9)" src="https://github.com/user-attachments/assets/189e0459-7c25-4aee-bfc0-a8fe31e81a29" /> <img width="99" height="56" alt="ezgif com-crop (10)" src="https://github.com/user-attachments/assets/c152aa0d-13e7-4c7c-b342-06e9367957b7" /> </p>
-
 ## <ins>Ponytown Stuff<ins>
 
 ### general stuff
